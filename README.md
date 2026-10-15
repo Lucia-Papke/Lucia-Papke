@@ -4,9 +4,9 @@
 
 
 
-# Hi there, I'm Steven ashley Papke
+# Hi there, I'm Lucia Papke
 
-**Steven ashley Papke**
+**Lucia Papke**
 
 *IT Professional*
 
